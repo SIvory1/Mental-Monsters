@@ -1,0 +1,1 @@
+These will play during the narrative screens and possibly before the boss fight happens, They are in order of the narrative (1 being him on his bed and so on)
